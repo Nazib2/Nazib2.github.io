@@ -10,7 +10,7 @@ Islam provides us with the astonishing details of the creation of Adam[1].  Both
 
 And God said to the angels:
 
-“‘Verily, I am going to place mankind generations after generations on earth.’  They said: ‘Will You place therein those who will make mischief therein and shed blood, while we glorify You with praises and thanks and sanctify You.’  God said: ‘I know that which you do not know.’” (Quran 2:30)
+>"‘Verily, I am going to place mankind generations after generations on earth.’  They said: ‘Will You place therein those who will make mischief therein and shed blood, while we glorify You with praises and thanks and sanctify You.’  God said: ‘I know that which you do not know.’” (Quran 2:30)
 
 So begins the story of Adam, the first man, the first human being.  God created Adam from a handful of soil containing portions from all its varieties on Earth.  Angels were sent to earth to collect the soil that was to become Adam.  It was red, white, brown, and black; it was soft and malleable, hard and gritty; it came from the mountains and the valleys; from infertile deserts and lush fertile plains and all the natural varieties in between.  The descendants of Adam were destined to be as diverse as the handful of soil from which their ancestor was created; all have different appearances, attributes and qualities.
 
@@ -20,11 +20,11 @@ Throughout the Quran, the soil used to create Adam is referred to by many names,
 The First Man is Honoured
 And God said, to the Angels:
 
-“And (remember) when your Lord said to the angels: ‘I am going to create a human (Adam) from sounding clay of altered black smooth mud.  So when I have fashioned him and breathed into him (his) soul created by Me, then you fall down prostrate to him.” (Quran 38:71-72)
+>“And (remember) when your Lord said to the angels: ‘I am going to create a human (Adam) from sounding clay of altered black smooth mud.  So when I have fashioned him and breathed into him (his) soul created by Me, then you fall down prostrate to him.” (Quran 38:71-72)
 
 God honoured the first humman, Adam, in countless ways.  Allah blew his soul into him, He fashioned him with His own hands and He ordered the Angels to bow down before him.  And God said to the Angels:
 
-“....Prostrate to Adam and they prostrated except Iblees (Satan)....” (Quran 7:11)
+>“....Prostrate to Adam and they prostrated except Iblees (Satan)....” (Quran 7:11)
 
 While worship is reserved for God Alone this prostration by the Angels to Adam was a sign of respect and honour.  It is said that, as Adam’s body trembled into life, he sneezed and immediately said ‘All praise and thanks is due to God;’ so God responded by bestowing His Mercy upon Adam.  Although this account is not mentioned in either the Quran or the authentic narrations of the Prophet Muhammad, may the mercy and blessings of God be upon him, it is mentioned in some commentaries of the Quran.  Thus, in his first seconds of life, the first man is recognized as an honoured creature, covered with the infinite Mercy of God.[3]
 
@@ -36,15 +36,15 @@ Adam was instructed to approach a group of Angels sitting near to him and greet 
 Adam, the Caretaker
 God told mankind that He did not create them except that they should worship Him.  Everything in this world was created for Adam and his descendants, in order to aid us in our ability to worship and know God.  Due to God’s infinite Wisdom, Adam and his descendants were to be the caretakers on earth, so God taught Adam what he needed to know to perform this duty.  God mentions:
 
-“He taught Adam all the names of everything.” (Quran 2:31)
+>“He taught Adam all the names of everything.” (Quran 2:31)
 
 God gave Adam the ability to identify and designate names to everything; He taught him language, speech and the ability to communicate.  God imbued Adam with an insatiable need for and love of knowledge.  After Adam had learned the names and uses for all things God said to the Angels...
 
-“‘tell me the names of these if you are truthful.’  They answered ‘Glory be to You, we have no knowledge except what You have taught us.  Verily it is You the All Knower, the All Wise.’” (Quran 2:31-32)
+>“‘tell me the names of these if you are truthful.’  They answered ‘Glory be to You, we have no knowledge except what You have taught us.  Verily it is You the All Knower, the All Wise.’” (Quran 2:31-32)
 
 God turned to Adam and said:
 
-“‘O Adam!  Inform them of their names,’ and when he had informed them of their names, He said:  Did I not tell you that I know the unseen in the heavens and the earth, and I know what you reveal and what you have been hiding?” (Quran 2:33)
+>“‘O Adam!  Inform them of their names,’ and when he had informed them of their names, He said:  Did I not tell you that I know the unseen in the heavens and the earth, and I know what you reveal and what you have been hiding?” (Quran 2:33)
 
 Adam tried to speak with the Angels, but they were occupied worshipping God.  The Angels were given no specific knowledge or freedom of will, their sole purpose being to worship and praise God.  Adam, on the other hand, was given the ability to reason, make choices and identify objects and their purpose.  This helped to prepare Adam for his coming role on earth.  So Adam knew the names of everything, but he was alone in Heaven.  One morning Adam awoke to find a woman gazing at him.[5]
 
@@ -69,7 +69,7 @@ Eve is Hawwa in Arabic; it comes from the root word hay, meaning living.  Eve is
 
 Both Jewish and Christian traditions also maintain that Eve was created from Adam’s rib, although in a literal translation of the Jewish tradition, rib is sometimes referred to as side.
 
-“And God said: ‘O Mankind!  Be dutiful to your Lord, Who created you from a single person (Adam) and from Him (Adam) He created his wife (Eve), and from them both He created many men and women.’” (Quran 4:1)
+>“And God said: ‘O Mankind!  Be dutiful to your Lord, Who created you from a single person (Adam) and from Him (Adam) He created his wife (Eve), and from them both He created many men and women.’” (Quran 4:1)
 
 The traditions of Prophet Muhammad relate that Eve was created while Adam was sleeping from his shortest left rib and that, after sometime, she was clothed with flesh.  He (Prophet Muhammad) used the story of Eve’s creation from Adam’s rib as a basis for imploring people to be gentle and kind to women.  “O Muslims!  I advise you to be gentle with women, for they are created from a rib, and the most crooked portion of the rib is its upper part.  If you try to straighten it, it will break, and if you leave it, it will remain crooked; so I urge you to take care of the women.” (Saheeh Al-Bukhari)
 
@@ -81,7 +81,7 @@ God continued his instructions to Adam and Eve by warning them “...come not ne
 Who is Satan?
 Satan is a creature from the world of the Jinn.  The Jinn are a creation of God made from fire.  They are separate and different from both the Angels and mankind; however, like mankind, they possess the power of reason and can choose between good and evil.  The Jinn existed before the creation of Adam[1]  and Satan was the most righteous among them, so much so that he was elevated to a high position amongst the Angels.
 
-“The Angels prostrated themselves all of them together.  Except Satan, he refused to be among the prostrators.  God said: ‘O Satan! What is your reason for not being among the prostrators?  ‘Satan said: ‘I am not the one to prostrate myself to a human being, whom You created from sounding clay of altered black smooth mud.’  God said: ‘Then get out from Here for verily you are an outcast or cursed one.  Verily the curse shall be upon you till the Day of Resurrection.’” (Quran 15:30-35)
+>“The Angels prostrated themselves all of them together.  Except Satan, he refused to be among the prostrators.  God said: ‘O Satan! What is your reason for not being among the prostrators?  ‘Satan said: ‘I am not the one to prostrate myself to a human being, whom You created from sounding clay of altered black smooth mud.’  God said: ‘Then get out from Here for verily you are an outcast or cursed one.  Verily the curse shall be upon you till the Day of Resurrection.’” (Quran 15:30-35)
 
 The Role of Satan
 Satan was there in the Paradise of Adam and Eve and his vow was to misguide and deceive them and their descendents.  Satan said: “…surely I will sit in wait against them (human beings) on Your Straight Path.  Then I will come to them from before them and behind them, from their right and from their left…” (Quran 7:16-17)  Satan is arrogant, and considered himself better then Adam, and thus mankind. He is crafty and cunning, but ultimately understands the weakness of human beings; he recognises their loves and desires.[2]
@@ -126,33 +126,33 @@ CATEGORY:Articles Beliefs of Islam
 2728
 Islam rejects the Christian concept of original sin and the notion that all humans are born sinners due to the actions of Adam.  God says in the Quran:
 
-“And no bearer of burdens shall bear another’s burden.” (Quran 35:18)
+>“And no bearer of burdens shall bear another’s burden.” (Quran 35:18)
 
 Every human being is responsible for his or her actions and is born pure and free from sin.  Adam and Eve committed a mistake, they repented sincerely and God in His infinite wisdom forgave them.
 
-“Then they both ate of that tree, and so their private parts appeared to them, and they began to stick on themselves the leaves from Paradise for their covering.  Thus did Adam disobey his Lord, so he went astray.  Then his Lord chose him, and turned to him with forgiveness and gave him guidance.” (Quran 20:121-122)
+>“Then they both ate of that tree, and so their private parts appeared to them, and they began to stick on themselves the leaves from Paradise for their covering.  Thus did Adam disobey his Lord, so he went astray.  Then his Lord chose him, and turned to him with forgiveness and gave him guidance.” (Quran 20:121-122)
 
 Mankind has a long history of committing mistakes and forgetting.  Even so, how was it possible for Adam to have committed such a mistake?  The reality was that Adam did not have any experience with the whisperings and ploys of Satan.  Adam had seen the arrogance of Satan when he refused to follow the commands of God; he knew that Satan was his enemy but had no familiarity with how to resist Satan’s tricks and schemes.  The Prophet Muhammad told us:
 
-“Knowing something is not the same as seeing it.” (Saheeh Muslim)
+>"Knowing something is not the same as seeing it.” (Saheeh Muslim)
 
 God said:
 
-“So he (Satan) misled them with deception.” (Quran 7:22)
+>“So he (Satan) misled them with deception.” (Quran 7:22)
 
 God tested Adam so that he could learn and gain experience.  In this way God prepared Adam for his role on earth as a caretaker and a Prophet of God.  From this experience, Adam learned the great lesson that Satan is cunning, ungrateful and the avowed enemy of mankind.  Adam, Eve and their descendants learned that Satan caused their expulsion from heaven.  Obedience to God and enmity towards Satan is the only path back to Heaven.
 
 God said to Adam:
 
-“Get you down (upon the earth), all of you together, from Paradise, some of you are an enemy to some others.  Then, if there comes to you guidance from Me, whoever follows My Guidance shall neither go astray, nor fall into distress and misery.” (Quran 20:123)
+>“Get you down (upon the earth), all of you together, from Paradise, some of you are an enemy to some others.  Then, if there comes to you guidance from Me, whoever follows My Guidance shall neither go astray, nor fall into distress and misery.” (Quran 20:123)
 
 The Quran tells us that Adam subsequently received from his Lord some words; a supplication to pray, which invoked God’s forgiveness.  This supplication is very beautiful and can be used when asking for God’s pardon of your sins.
 
-“Our Lord!  We have wronged ourselves.  If you forgive us not and bestow not upon us Your Mercy, we shall certainly be of the losers.” (Quran 7:23)
+>“Our Lord!  We have wronged ourselves.  If you forgive us not and bestow not upon us Your Mercy, we shall certainly be of the losers.” (Quran 7:23)
 
 Mankind continues to commit mistakes and wrong doing, and through them  we only harm ourselves.  Our sins and mistakes have not harmed, nor will it harm God.  If God does not forgive us and have mercy on us, it is we who will surely be among the losers.  We need God!
 
-“‘On earth will be a dwelling place for you and an enjoyment, for a time.’  He said: ‘Therein you shall live and therein you shall die, and from it you shall be brought out (resurrected).’” (Quran 7:24–25)
+>“‘On earth will be a dwelling place for you and an enjoyment, for a time.’  He said: ‘Therein you shall live and therein you shall die, and from it you shall be brought out (resurrected).’” (Quran 7:24–25)
 
 Adam and Eve left heaven and descended upon earth.  Their descent was not one of degradation; rather it was dignified.  In the English language we are familiar with things being either singular or plural; this is not the case for Arabic.  In the Arabic language there is singular, then an extra grammatical number category denoting two.  Plural is used for three and more.
 
@@ -168,7 +168,7 @@ There are many reports on the subject of where on earth Adam and Eve descended, 
 
 We do know however that Adam and Eve descended to earth on a Friday.  In a tradition narrated to inform us of the importance of Fridays, the Prophet Muhammad, may the mercy and blessings of God be upon him, said:
 
-“The best of days on which the sun has risen is Friday.  One this day Adam was created, and on this day he was descended to earth.” (Saheeh Al-Bukhari)
+>“The best of days on which the sun has risen is Friday.  One this day Adam was created, and on this day he was descended to earth.” (Saheeh Al-Bukhari)
 
 
 FOOTNOTES:[1]Muhammad ibn Al Husain al Ajjurri.Previous: The Story of Adam (part 2 of 5): The Creation of Eve and the Role of SatanNext: The Story of Adam (part 4 of 5): Life on Earth
@@ -197,20 +197,21 @@ It seems that beauty has played a part in the attraction of men and women since 
 
 God commanded that each son was to offer a sacrifice.  His judgement would favour the son whose offer was the most acceptable.  Cain offered his worst grain, but Abel offered his best livestock.  God accepted Abel’s sacrifice, so Cain became enraged, threatening to kill his brother.
 
-“And (O Muhammad) recite to them (the Jews) the story of the two sons of Adam (Abel and Cain) in truth; when each offered a sacrifice to God, it was accepted from the one but not from the other.  The latter said to the former; ‘I will surely kill you.’” (Quran 5:27)
+>“And (O Muhammad) recite to them (the Jews) the story of the two sons of Adam (Abel and Cain) in truth; when each offered a sacrifice to God, it was accepted from the one but not from the other.  The latter said to the former; ‘I will surely kill you.’” (Quran 5:27)
 
 Abel advised his brother that God would accept good deeds from those that fear and serve Him, but  reject the good deeds of those who are arrogant, selfish and disobedient towards God.
 
-“The former said: ‘Verily God accepts only from those who are pious.  If you do stretch your hand against me to kill me I shall never stretch my hand against you to kill you, for I fear God; the Lord of mankind, jinn, and all that exists.’” (Quran 5:27-28)
+“The former said: 
+>‘Verily God accepts only from those who are pious.  If you do stretch your hand against me to kill me I shall never stretch my hand against you to kill you, for I fear God; the Lord of mankind, jinn, and all that exists.’” (Quran 5:27-28)
 
 The First Murder
-“So the self  (base desires) of the other (latter one) encouraged him and made fair seeming to him the murder of his brother; he murdered him and became one of the losers.” (Quran 5:30)
+>“So the self  (base desires) of the other (latter one) encouraged him and made fair seeming to him the murder of his brother; he murdered him and became one of the losers.” (Quran 5:30)
 
 Prophet Muhammad informed us that Cain became angry and hit his brother over the head with a piece of iron.  It was also said in another narration that Cain hit Abel over the head while he was sleeping.
 
-“God sent a crow who scratched the ground to show him to hide the dead body of his brother.  He (the murderer) said: ‘Woe to me!
+>“God sent a crow who scratched the ground to show him to hide the dead body of his brother.  He (the murderer) said: ‘Woe to me!
 
-Am I not even able to be as this crow and to hide the dead body of my brother?’  Then he became one of those who regretted.” (Quran 5:31)
+>Am I not even able to be as this crow and to hide the dead body of my brother?’  Then he became one of those who regretted.” (Quran 5:31)
 
 Adam was devastated; he had lost both his first and second born sons.  One had been murdered; the other was won over by mankind’s greatest enemy – Satan.  Patiently, Adam prayed for his son, and continued to care for the earth.  He taught his many children and grandchildren about God.  He told them of his own encounter with Satan and advised them to beware of Satan’s tricks and schemes.  Years and years passed, and  Adam grew old and his children spread out across the earth.
 
@@ -254,7 +255,7 @@ The Quran instructs Muslims to “contemplate the wonders of creation” (Quran 
 
 One of the items for contemplation is the statement:
 
-“Truly, I am going to create man from clay...” (Quran 38:71)
+>“Truly, I am going to create man from clay...” (Quran 38:71)
 
 Indeed, many elements present in the earth are also contained in the human body.  The most critical component to land-based life is the top soil; that thin layer of dark, organically rich soil in which plants spread out their roots.  It is in this thin, vital layer of soil that microorganisms convert raw resources, the minerals that constitute the basic clay of this topsoil, and make them available to the myriad forms of life around and above them.
 
@@ -266,7 +267,7 @@ The human body contains trace amounts of almost every mineral on earth; includin
 
            Another verse to contemplate is:
 
-“He taught Adam all the names of everything.” (Quran 2:31)
+>“He taught Adam all the names of everything.” (Quran 2:31)
 
 Adam was taught the names of everything; the powers of reasoning and free will were given to him.  He learned how to categorise things and understand their usefulness.  Thus, God taught Adam language skills.  He taught Adam how to think – to apply knowledge to solve problems, make plans and decisions and to achieve goals.  We, the children of Adam, have inherited these skills in order that we can exist in the world and worship God in the best manner.
 
@@ -282,7 +283,7 @@ All children, regardless of where in the world they are, go through the same fou
 
 A third verse to ponder is about progeniture:
 
-“O Mankind!  Be dutiful to your Lord, Who created you from a single person (Adam) and from Him (Adam) He created his wife (Eve), and from them both He created many men and women.” (Quran 4:1)
+>“O Mankind!  Be dutiful to your Lord, Who created you from a single person (Adam) and from Him (Adam) He created his wife (Eve), and from them both He created many men and women.” (Quran 4:1)
 
 The realisation that all mtDNA lineages (Africa, Asia, Europe and the Americas) can be traced back to a single origin is popularly called the “mitochondrial Eve” theory.  According to top scientists[7]  and cutting-edge research, everyone on the planet today can trace a specific part of his or her genetic heritage back to one woman through a unique part of our genetic makeup, the mitochondrial DNA (mtDNA).  The mtDNA of “mitochondrial Eve” has been passed down through the centuries from mother to daughter (men are carriers, but don’t pass it on) and exists within all people living today.[8]  It is popularly known as the Eve theory because, as can be deduced from the above, it is passed down through the X chromosome.  Scientists are also studying DNA from the Y chromosome (perhaps to be dubbed the “Adam theory”), which is passed only from father to son and is not recombined with the mother’s genes.
 

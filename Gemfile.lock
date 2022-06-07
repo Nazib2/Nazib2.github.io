@@ -66,7 +66,7 @@ GEM
       listen (~> 3.0)
     jekyll-youtube (1.0.0)
       jekyll
-    jmespath (1.4.0)
+    jmespath (1.6.1)
     kramdown (2.2.1)
       rexml
     kramdown-parser-gfm (1.1.0)
